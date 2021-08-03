@@ -1,4 +1,4 @@
-# freeqn.net_hack #h4xr0x.cc https://h4xr0x.cc add me on discord: h4xr0x.cc#1337
+#https://discord.gg/ZXuu6vdg85  freeqn.net_hack #h4xr0x.cc https://h4xr0x.cc add me on discord: h4xr0x.cc#1337
 Forgot about this
 #freeqn.net full website source + admin panel + dump
 ***********************************************************************************************************************************************************************************
